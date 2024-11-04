@@ -1,1 +1,1 @@
-# Hack-for-Humanity
+# Hack for Humanity!
